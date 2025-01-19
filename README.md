@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Manha Binta Bellah!
-- 👀 I’m interested in progranning a lot because I find it fun
+- 👀 I’m interested in programming a lot because I find it fun
 - 🌱 I’m currently still in school I'm in class four
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me 0191331886
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: there are no fun things in my life.
 
