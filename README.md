@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MANHA1234 also known as Manha!
+- 👋 Hi, I’m Manha Binta Bellah!
 - 👀 I’m interested in progranning a lot because I find it fun
 - 🌱 I’m currently still in school I'm in class four
 - 💞️ I’m looking to collaborate on ...
